@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...music shit lol
 - 📫 How to reach me ...illl add this if I feel like it lol
 - 😄 Pronouns: ...any
-- ⚡ Fun fact: ...Humansa re more related to sea squirts than they are to reptiles
+- ⚡ Fun fact: ...Humans are more related to sea squirts than they are to reptiles
 
 <!---
 PrestoMotif/PrestoMotif is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
